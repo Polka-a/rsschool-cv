@@ -1,1 +1,1 @@
-# rsschool-cv
+https://polka-a.github.io/rsschool-cv/cv
